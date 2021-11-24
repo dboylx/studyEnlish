@@ -1,4 +1,7 @@
-# studyEnlish
+![Image text](https://github.com/dboylx/studyEnlish/blob/main/1683.png)
+
+
+# 学习英语交友群，一起干词一起爽
 
 加微信进群： dboylx
 
